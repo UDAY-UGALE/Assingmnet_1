@@ -1,1 +1,1 @@
-# Assignmnet_1
+# Assignments
